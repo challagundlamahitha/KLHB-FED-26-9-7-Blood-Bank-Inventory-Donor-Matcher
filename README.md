@@ -2,7 +2,7 @@
 
 ## Team Members
 1. Mahitha - 2620090057
-2. Name - 2620090058
+2. Yaswitha - 2620090058
 
 
 ## Supervisor
